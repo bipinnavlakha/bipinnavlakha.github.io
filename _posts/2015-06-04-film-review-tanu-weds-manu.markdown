@@ -17,9 +17,13 @@ Well i will try to review the different aspects of the movie:-
 
 - **Acting**:- Kangana Ranaut steals the show here. Here double role as Kusum/Tanu was one of the best i have seen in a Bollywood movie. The two roles seem poles apart and justice was done to both of them. Kangana Ranaut shall definitely be a strong contender for many movie awards next year. Besides kangana Madhavan and Deepak Dobriyal have done justice to their roles.
 
+<img src="http://i.ndtvimg.com/i/2015-04/kangana-ranaut_640x480_71429087464.jpg" alt="Double Role"/>
+
 - **Cinematography**:- The parts of Kanpur(Tanu's hometown are shot beautifully). Wouldn't say the same for Delhi. A part where Tanu walks lonely in a village in Haryana has been shot beautifully capturing various elements lurking in a village post nightfall.
 
 - **Editing**:- The editing was crisp overall except for the parts where Tanu and Kusum come face to face. I am unaware of the technique used to have the two characters come face to face but it surely didn't look real on screen.
+
+<img src="http://mh09.in/wp-content/uploads/2015/05/Tanu-Weds-Manu-Returns-11.gif alt="Memorable Kusum"/>
 
 - **Dialogues**:- This is a strong point of the movie. This haryanvi is well written and is surprisingly completely understandable. Credit should also be given to Kangana for getting the accent right.
 
