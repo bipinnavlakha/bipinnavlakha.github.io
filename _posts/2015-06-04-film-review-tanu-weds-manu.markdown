@@ -23,11 +23,11 @@ Well i will try to review the different aspects of the movie:-
 
 - **Editing**:- The editing was crisp overall except for the parts where Tanu and Kusum come face to face. I am unaware of the technique used to have the two characters come face to face but it surely didn't look real on screen.
 
-<img src="http://mh09.in/wp-content/uploads/2015/05/Tanu-Weds-Manu-Returns-11.gif alt="Memorable Kusum"/>
-
 - **Dialogues**:- This is a strong point of the movie. This haryanvi is well written and is surprisingly completely understandable. Credit should also be given to Kangana for getting the accent right.
 
 - **Sound and Background Score**:- Except for the track Banno personally didnt like any of the tracks though ymmv
+
+<img src="http://i.ytimg.com/vi/EZDoaKLrHnQ/maxresdefault.jpg" alt="Banno Track"/>
 
 - **Sets**:- Well i did not like this part. None of the sets i.e. Tanu/Mann/Kusum’s homes weren't properly designed according to the locale.
 
