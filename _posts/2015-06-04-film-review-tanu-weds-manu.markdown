@@ -1,12 +1,8 @@
 ---
-published: true
----
-
-
----
 layout: post
-title:  "Film Review: Tanu Weds Manu Returns"
+title:  Film Review: Tanu Weds Manu Returns
 date:   2015-06-04
+published: true
 ---
 
 Today i watched the movie "Tanu Weds Manu Returns". I haven't watched the first part of the movie(though i now feel i should watch it). If you are also like me and haven't yet watched the first part don't worry the current one  does not borrow much from the earlier one except for the character introductions and the fact that the first one ends with Tanu marrying Manu.
